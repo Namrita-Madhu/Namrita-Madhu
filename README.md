@@ -1,1 +1,1 @@
-I am an Engineering student, ask me about video editing, YouTube channels and k-drama😇
+I am an Engineering student concentrating on Electrical and Electronics Engineering. 
